@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @AhmedLaminou
 - 👀 I’m interested in Software developping
-- 🌱 I’m currently learning a lot a software stuff
+- 🌱 I’m currently learning a lot of  a software stuff
 - 💞️ I’m looking to collaborate on Website building , mobile and desktop apps
-- 📫 How to reach me 
+- 📫 How to reach me , contact +216 56 19 38 47
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
